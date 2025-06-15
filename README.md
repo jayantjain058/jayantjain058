@@ -13,7 +13,7 @@
 
 ## 🔗 Let's Connect:
 [LinkedIn](https://www.linkedin.com/in/jayant-jain-442584271/)  
-[x.com]((https://x.com/JayantJ86908408))
+
 
 ---
 
